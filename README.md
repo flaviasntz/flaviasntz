@@ -5,4 +5,4 @@
 - 🪷 Pronomes: Ela/dela
 - 📖 Gosto de Ler
 
-![](https://tenor.com/pt-BR/view/genshin-impact-genshin-genshin-impact-characters-wanderer-genshin-scaramouche-gif-27321816)
+![.](https://media1.tenor.com/m/-m5PJk4Ao_QAAAAC/time-coffee-coffee.gif)
